@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Developing some python programs.**
 
-- 🌱 I’m currently learning **I am currently learning cyber security course**
+- 🌱 I’m currently learning **cyber security course**
 
 - 📫 How to reach me **deepkanair8@gmail.com**
 
