@@ -6,6 +6,11 @@
 - 🌱 I’m currently learning **Artificial Intelligence & Machine learning course**
 
 - 📫 How to reach me **deepkanair8@gmail.com**
+---
+
+**<b>📌 Daily Fact:</b>** March 18th is the day in 37 that the Roman Senate annuls Tiberius's will and proclaims Caligula emperor.
+
+---
 
 - ⚡ Fun fact **I'm an artistic person**
 
