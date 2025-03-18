@@ -34,7 +34,7 @@ jobs:
           GH_PAT: ${{ secrets.GH_PAT }}
         run: |
           git config --global user.name "dee-pka"
-          git config --global user.email "deepkav8@gmail.com"
+          git config --global user.email "deepkav5008.sse@saveetha.com"
           git pull https://dee-pka:${GH_PAT}@github.com/dee-pka/dee-pka.git
           git add README.md
           git commit -m "Updated README with today's fact" || exit 0
