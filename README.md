@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 18th is the day in 37 that the Roman Senate annuls Tiberius's will and proclaims Caligula emperor.
+**<b>📌 Daily Fact:</b>** March 18th is the day in 1992 that White South Africans vote overwhelmingly in favour, in a national referendum, to end the racist policy of Apartheid.
 
 ---
 
