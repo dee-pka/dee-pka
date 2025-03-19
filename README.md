@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 18th is the day in 1992 that White South Africans vote overwhelmingly in favour, in a national referendum, to end the racist policy of Apartheid.
+**<b>📌 Daily Fact:</b>** March 19th is the day in 1918 that the U.S. Congress establishes time zones and approves daylight saving time.
 
 ---
 
