@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 20th is the day in 1208 that Michael IV Autoreianos is appointed Ecumenical Patriarch of Constantinople.
+**<b>📌 Daily Fact:</b>** March 21st is the day in 1921 that the New Economic Policy is implemented by the Bolshevik Party in response to the economic failure as a result of War Communism.
 
 ---
 
