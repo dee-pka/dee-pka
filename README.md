@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 21st is the day in 1921 that the New Economic Policy is implemented by the Bolshevik Party in response to the economic failure as a result of War Communism.
+**<b>📌 Daily Fact:</b>** March 22nd is the day in 1960 that Arthur Leonard Schawlow and Charles Hard Townes receive the first patent for a laser.
 
 ---
 
