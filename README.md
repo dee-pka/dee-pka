@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 22nd is the day in 1960 that Arthur Leonard Schawlow and Charles Hard Townes receive the first patent for a laser.
+**<b>📌 Daily Fact:</b>** March 23rd is the day in 1862 that the First Battle of Kernstown, Virginia, marks the start of Stonewall Jackson's Valley Campaign.
 
 ---
 
