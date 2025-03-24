@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 23rd is the day in 1862 that the First Battle of Kernstown, Virginia, marks the start of Stonewall Jackson's Valley Campaign.
+**<b>📌 Daily Fact:</b>** March 24th is the day in 2003 that the Arab League votes 21-1 in favor of a resolution demanding the immediate and unconditional removal of U.S. and British soldiers from Iraq.
 
 ---
 
