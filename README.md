@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 24th is the day in 2003 that the Arab League votes 21-1 in favor of a resolution demanding the immediate and unconditional removal of U.S. and British soldiers from Iraq.
+**<b>📌 Daily Fact:</b>** March 25th is the day in 1918 that the Belarusian People's Republic is established.
 
 ---
 
