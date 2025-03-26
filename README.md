@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 25th is the day in 1918 that the Belarusian People's Republic is established.
+**<b>📌 Daily Fact:</b>** March 26th is the day in 1552 that Guru Amar Das becomes the Third Sikh Guru.
 
 ---
 
