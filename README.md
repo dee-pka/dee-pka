@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 26th is the day in 1552 that Guru Amar Das becomes the Third Sikh Guru.
+**<b>📌 Daily Fact:</b>** March 27th is the day in 1980 that the Norwegian oil platform Alexander L. Kielland collapses in the North Sea, killing 123 of its crew of 212.
 
 ---
 
