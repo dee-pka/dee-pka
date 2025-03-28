@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 27th is the day in 1980 that the Norwegian oil platform Alexander L. Kielland collapses in the North Sea, killing 123 of its crew of 212.
+**<b>📌 Daily Fact:</b>** March 28th is the day in 1802 that Heinrich Wilhelm Matthäus Olbers discovers 2 Pallas, the second asteroid known to man.
 
 ---
 
