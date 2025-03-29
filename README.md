@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 28th is the day in 1802 that Heinrich Wilhelm Matthäus Olbers discovers 2 Pallas, the second asteroid known to man.
+**<b>📌 Daily Fact:</b>** March 29th is the day in 1961 that the Twenty-third Amendment to the United States Constitution is ratified, allowing residents of Washington, D.C., to vote in presidential elections.
 
 ---
 
