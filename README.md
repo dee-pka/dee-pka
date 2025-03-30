@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 29th is the day in 1961 that the Twenty-third Amendment to the United States Constitution is ratified, allowing residents of Washington, D.C., to vote in presidential elections.
+**<b>📌 Daily Fact:</b>** March 30th is the day in 1949 that a riot breaks out in Austurvöllur square in Reykjavík, when Iceland joins NATO.
 
 ---
 
