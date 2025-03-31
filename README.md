@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 30th is the day in 1949 that a riot breaks out in Austurvöllur square in Reykjavík, when Iceland joins NATO.
+**<b>📌 Daily Fact:</b>** March 31st is the day in 1866 that the Spanish Navy bombs the harbor of Valparaíso, Chile.
 
 ---
 
