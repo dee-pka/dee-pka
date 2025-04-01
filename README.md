@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** March 31st is the day in 1866 that the Spanish Navy bombs the harbor of Valparaíso, Chile.
+**<b>📌 Daily Fact:</b>** April 1st is the day in 1997 that Comet Hale-Bopp is seen passing over perihelion.
 
 ---
 
