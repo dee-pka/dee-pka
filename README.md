@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 1st is the day in 1997 that Comet Hale-Bopp is seen passing over perihelion.
+**<b>📌 Daily Fact:</b>** April 2nd is the day in 1962 that the first official Panda crossing is opened outside Waterloo station, London.
 
 ---
 
