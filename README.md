@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 2nd is the day in 1962 that the first official Panda crossing is opened outside Waterloo station, London.
+**<b>📌 Daily Fact:</b>** April 3rd is the day in 1860 that the first successful United States Pony Express run from Saint Joseph, Missouri to Sacramento, California begins.
 
 ---
 
