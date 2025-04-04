@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 3rd is the day in 1860 that the first successful United States Pony Express run from Saint Joseph, Missouri to Sacramento, California begins.
+**<b>📌 Daily Fact:</b>** April 4th is the day in 1930 that the Communist Party of Panama is founded.
 
 ---
 
