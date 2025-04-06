@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 5th is the day in 1792 that U.S. President George Washington exercises his authority to veto a bill, the first time this power is used in the United States.
+**<b>📌 Daily Fact:</b>** April 6th is the day in 1808 that John Jacob Astor incorporates the American Fur Company, that would eventually make him America's first millionaire.
 
 ---
 
