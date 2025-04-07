@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 6th is the day in 1808 that John Jacob Astor incorporates the American Fur Company, that would eventually make him America's first millionaire.
+**<b>📌 Daily Fact:</b>** April 7th is the day in 1948 that the World Health Organization is established by the United Nations.
 
 ---
 
