@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 7th is the day in 1948 that the World Health Organization is established by the United Nations.
+**<b>📌 Daily Fact:</b>** April 8th is the day in 1950 that India and Pakistan sign the Liaquat-Nehru Pact.
 
 ---
 
