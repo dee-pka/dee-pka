@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 8th is the day in 1950 that India and Pakistan sign the Liaquat-Nehru Pact.
+**<b>📌 Daily Fact:</b>** April 9th is the day in 1969 that the "Chicago Eight" plead not guilty to federal charges of conspiracy to incite a riot at the 1968 Democratic National Convention in Chicago, Illinois.
 
 ---
 
