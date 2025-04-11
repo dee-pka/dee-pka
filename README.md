@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 10th is the day in 1815 that the Mount Tambora volcano begins a three-month-long eruption, lasting until July 15.
+**<b>📌 Daily Fact:</b>** April 11th is the day in 1241 that Batu Khan defeats Béla IV of Hungary at the Battle of Muhi.
 
 ---
 
