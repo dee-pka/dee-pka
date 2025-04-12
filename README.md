@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 11th is the day in 1241 that Batu Khan defeats Béla IV of Hungary at the Battle of Muhi.
+**<b>📌 Daily Fact:</b>** April 12th is the day in 1955 that the polio vaccine, developed by Dr. Jonas Salk, is declared safe and effective.
 
 ---
 
