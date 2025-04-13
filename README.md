@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 12th is the day in 1955 that the polio vaccine, developed by Dr. Jonas Salk, is declared safe and effective.
+**<b>📌 Daily Fact:</b>** April 13th is the day in 1953 that CIA director Allen Dulles launches the mind-control program MKULTRA.
 
 ---
 
