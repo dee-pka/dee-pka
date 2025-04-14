@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 13th is the day in 1953 that CIA director Allen Dulles launches the mind-control program MKULTRA.
+**<b>📌 Daily Fact:</b>** April 14th is the day in 2002 that Venezuelan President Hugo Chavez returns to office two days after being ousted and arrested by the country's military.
 
 ---
 
