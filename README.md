@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 15th is the day in 1940 that the Allies begin their attack on the Norwegian town of Narvik which is occupied by Nazi Germany.
+**<b>📌 Daily Fact:</b>** April 16th is the day in 1908 that Natural Bridges National Monument is established in Utah.
 
 ---
 
