@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 16th is the day in 1908 that Natural Bridges National Monument is established in Utah.
+**<b>📌 Daily Fact:</b>** April 17th is the day in 1397 that Geoffrey Chaucer tells the Canterbury Tales for the first time at the court of Richard II.
 
 ---
 
