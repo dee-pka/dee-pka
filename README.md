@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 17th is the day in 1397 that Geoffrey Chaucer tells the Canterbury Tales for the first time at the court of Richard II.
+**<b>📌 Daily Fact:</b>** April 18th is the day in 1831 that the University of Alabama is founded.
 
 ---
 
