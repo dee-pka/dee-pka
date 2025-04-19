@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 18th is the day in 1831 that the University of Alabama is founded.
+**<b>📌 Daily Fact:</b>** April 19th is the day in 1587 that Francis Drake's expedition sinks the Spanish fleet in Cádiz harbor.
 
 ---
 
