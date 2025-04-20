@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 19th is the day in 1587 that Francis Drake's expedition sinks the Spanish fleet in Cádiz harbor.
+**<b>📌 Daily Fact:</b>** April 20th is the day in 1792 that France declares war on Austria, the beginning of French Revolutionary Wars.
 
 ---
 
