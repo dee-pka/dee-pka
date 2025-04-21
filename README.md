@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 20th is the day in 1792 that France declares war on Austria, the beginning of French Revolutionary Wars.
+**<b>📌 Daily Fact:</b>** April 21st is the day in 1987 that the Tamil Tigers are blamed for a car bomb that explodes in the Sri Lankan city of Colombo, killing 106 people.
 
 ---
 
