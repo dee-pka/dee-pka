@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 21st is the day in 1987 that the Tamil Tigers are blamed for a car bomb that explodes in the Sri Lankan city of Colombo, killing 106 people.
+**<b>📌 Daily Fact:</b>** April 22nd is the day in 1964 that the 1964-1965 New York World's Fair opens for its first season.
 
 ---
 
