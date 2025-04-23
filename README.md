@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 22nd is the day in 1964 that the 1964-1965 New York World's Fair opens for its first season.
+**<b>📌 Daily Fact:</b>** April 23rd is the day in 1927 that Turkey becomes the first country to celebrate Children's Day as a national holiday.
 
 ---
 
