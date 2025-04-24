@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 23rd is the day in 1927 that Turkey becomes the first country to celebrate Children's Day as a national holiday.
+**<b>📌 Daily Fact:</b>** April 24th is the day in 1968 that Mauritius becomes a member state of the United Nations.
 
 ---
 
