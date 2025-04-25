@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 24th is the day in 1968 that Mauritius becomes a member state of the United Nations.
+**<b>📌 Daily Fact:</b>** April 25th is the day in 1644 that the Chongzhen Emperor, the last Emperor of Ming Dynasty China, commits suicide during a peasant rebellion led by Li Zicheng.
 
 ---
 
