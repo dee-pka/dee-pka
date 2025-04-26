@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 25th is the day in 1644 that the Chongzhen Emperor, the last Emperor of Ming Dynasty China, commits suicide during a peasant rebellion led by Li Zicheng.
+**<b>📌 Daily Fact:</b>** April 26th is the day in 1986 that a nuclear reactor accident occurs at the Chernobyl Nuclear Power Plant in the Soviet Union (now Ukraine), creating the world's worst nuclear disaster.
 
 ---
 
