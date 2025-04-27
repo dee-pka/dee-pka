@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 26th is the day in 1986 that a nuclear reactor accident occurs at the Chernobyl Nuclear Power Plant in the Soviet Union (now Ukraine), creating the world's worst nuclear disaster.
+**<b>📌 Daily Fact:</b>** April 27th is the day in 1992 that the Federal Republic of Yugoslavia, comprising Serbia and Montenegro, is proclaimed.
 
 ---
 
