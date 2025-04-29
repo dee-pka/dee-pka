@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 28th is the day in 1947 that Thor Heyerdahl and five crew mates set out from Peru on the Kon-Tiki to prove that Peruvian natives could have settled Polynesia.
+**<b>📌 Daily Fact:</b>** April 29th is the day in 1945 that the Italian commune of Fornovo di Taro is liberated from German forces by Brazilian forces.
 
 ---
 
