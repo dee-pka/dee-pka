@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 29th is the day in 1945 that the Italian commune of Fornovo di Taro is liberated from German forces by Brazilian forces.
+**<b>📌 Daily Fact:</b>** April 30th is the day in 1006 that Supernova SN 1006, the brightest supernova in recorded history, appears in the constellation Lupus.
 
 ---
 
