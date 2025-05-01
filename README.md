@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** April 30th is the day in 1006 that Supernova SN 1006, the brightest supernova in recorded history, appears in the constellation Lupus.
+**<b>📌 Daily Fact:</b>** May 1st is the day in 2011 that Pope John Paul II is beatified by his successor, Pope Benedict XVI.
 
 ---
 
