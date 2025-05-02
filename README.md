@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 1st is the day in 2011 that Pope John Paul II is beatified by his successor, Pope Benedict XVI.
+**<b>📌 Daily Fact:</b>** May 2nd is the day in 1335 that Otto the Merry, Duke of Austria, becomes Duke of Carinthia.
 
 ---
 
