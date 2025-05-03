@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 2nd is the day in 1335 that Otto the Merry, Duke of Austria, becomes Duke of Carinthia.
+**<b>📌 Daily Fact:</b>** May 3rd is the day in 1916 that the leaders of the Easter Rising are executed in Dublin.
 
 ---
 
