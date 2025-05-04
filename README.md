@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 3rd is the day in 1916 that the leaders of the Easter Rising are executed in Dublin.
+**<b>📌 Daily Fact:</b>** May 4th is the day in 1910 that the Royal Canadian Navy is created.
 
 ---
 
