@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 4th is the day in 1910 that the Royal Canadian Navy is created.
+**<b>📌 Daily Fact:</b>** May 5th is the day in 2007 that all 114 aboard Kenya Airways Flight 507 die when the pilots lose control of the plane and it crashes in Douala, Cameroon.
 
 ---
 
