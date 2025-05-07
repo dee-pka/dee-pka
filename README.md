@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 6th is the day in 1889 that the Eiffel Tower is officially opened to the public at the Universal Exposition in Paris.
+**<b>📌 Daily Fact:</b>** May 7th is the day in 1718 that the city of New Orleans is founded by Jean-Baptiste Le Moyne de Bienville.
 
 ---
 
