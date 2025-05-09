@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 8th is the day in 1924 that the Klaipėda Convention is signed formally incorporating Klaipėda Region (Memel Territory) into Lithuania.
+**<b>📌 Daily Fact:</b>** May 9th is the day in 1961 that Jim Gentile of the Baltimore Orioles becomes the first player in baseball history to hit grand slams in consecutive innings.
 
 ---
 
