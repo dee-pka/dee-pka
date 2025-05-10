@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 9th is the day in 1961 that Jim Gentile of the Baltimore Orioles becomes the first player in baseball history to hit grand slams in consecutive innings.
+**<b>📌 Daily Fact:</b>** May 10th is the day in 1655 that England, with troops under the command of Admiral William Penn and General Robert Venables, annexes Jamaica from Spain.
 
 ---
 
