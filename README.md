@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 10th is the day in 1655 that England, with troops under the command of Admiral William Penn and General Robert Venables, annexes Jamaica from Spain.
+**<b>📌 Daily Fact:</b>** May 11th is the day in 1792 that Captain Robert Gray becomes the first documented white person to sail into the Columbia River.
 
 ---
 
