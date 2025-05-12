@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 11th is the day in 1792 that Captain Robert Gray becomes the first documented white person to sail into the Columbia River.
+**<b>📌 Daily Fact:</b>** May 12th is the day in 1981 that Francis Hughes starves to death in the Maze Prison in a Republican campaign for political prisoner status to be granted to Provisional IRA prisoners.
 
 ---
 
