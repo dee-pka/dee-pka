@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 12th is the day in 1981 that Francis Hughes starves to death in the Maze Prison in a Republican campaign for political prisoner status to be granted to Provisional IRA prisoners.
+**<b>📌 Daily Fact:</b>** May 13th is the day in 1780 that the Cumberland Compact is signed by leaders of the settlers in early Tennessee.
 
 ---
 
