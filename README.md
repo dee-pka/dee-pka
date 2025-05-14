@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 13th is the day in 1780 that the Cumberland Compact is signed by leaders of the settlers in early Tennessee.
+**<b>📌 Daily Fact:</b>** May 14th is the day in 1940 that the Yermolayev Yer-2, a long-range Soviet medium bomber, has its first flight.
 
 ---
 
