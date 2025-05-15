@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 14th is the day in 1940 that the Yermolayev Yer-2, a long-range Soviet medium bomber, has its first flight.
+**<b>📌 Daily Fact:</b>** May 15th is the day in 1972 that the island of Okinawa, under U.S. military governance since its conquest in 1945, reverts to Japanese control.
 
 ---
 
