@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 15th is the day in 1972 that the island of Okinawa, under U.S. military governance since its conquest in 1945, reverts to Japanese control.
+**<b>📌 Daily Fact:</b>** May 16th is the day in 1868 that President Andrew Johnson is acquitted in his impeachment trial by one vote in the United States Senate.
 
 ---
 
