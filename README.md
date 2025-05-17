@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 16th is the day in 1868 that President Andrew Johnson is acquitted in his impeachment trial by one vote in the United States Senate.
+**<b>📌 Daily Fact:</b>** May 17th is the day in 1673 that Louis Joliet and Jacques Marquette begin exploring the Mississippi River.
 
 ---
 
