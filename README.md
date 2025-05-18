@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 17th is the day in 1673 that Louis Joliet and Jacques Marquette begin exploring the Mississippi River.
+**<b>📌 Daily Fact:</b>** May 18th is the day in 1756 that the Seven Years' War begins when Great Britain declares war on France.
 
 ---
 
