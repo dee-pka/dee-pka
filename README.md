@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 18th is the day in 1756 that the Seven Years' War begins when Great Britain declares war on France.
+**<b>📌 Daily Fact:</b>** May 19th is the day in 1962 that a birthday salute to U.S. President John F. Kennedy takes place at Madison Square Garden, New York City.
 
 ---
 
