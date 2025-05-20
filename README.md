@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 19th is the day in 1962 that a birthday salute to U.S. President John F. Kennedy takes place at Madison Square Garden, New York City.
+**<b>📌 Daily Fact:</b>** May 20th is the day in 1884 that Dinuzulu kaCetshwayo becomes the king of the Zulu Nation.
 
 ---
 
