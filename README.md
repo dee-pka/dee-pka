@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 21st is the day in 1894 that the Manchester Ship Canal in England is officially opened by Queen Victoria, who later knights its designer Sir Edward Leader Williams.
+**<b>📌 Daily Fact:</b>** May 22nd is the day in 1942 that the Steel Workers Organizing Committee disbands, and a new trade union, the United Steelworkers, is formed.
 
 ---
 
