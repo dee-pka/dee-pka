@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 23rd is the day in 1498 that Girolamo Savonarola is burned at the stake in Florence, Italy, on the orders of Pope Alexander VI.
+**<b>📌 Daily Fact:</b>** May 24th is the day in 1276 that Magnus Ladulås is crowned King of Sweden in Uppsala Cathedral.
 
 ---
 
