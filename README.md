@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 25th is the day in 1521 that the Diet of Worms ends when Charles V, Holy Roman Emperor, issues the Edict of Worms, declaring Martin Luther an outlaw.
+**<b>📌 Daily Fact:</b>** May 26th is the day in 1972 that Willandra National Park is established in Australia.
 
 ---
 
