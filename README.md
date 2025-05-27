@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 26th is the day in 1972 that Willandra National Park is established in Australia.
+**<b>📌 Daily Fact:</b>** May 27th is the day in 1958 that the F-4 Phantom II makes its first flight.
 
 ---
 
