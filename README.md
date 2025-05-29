@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 28th is the day in 585 BC that a solar eclipse occurs while Alyattes is battling Cyaxares in the Battle of the Eclipse, leading to a truce.
+**<b>📌 Daily Fact:</b>** May 29th is the day in 1167 that Battle of Monte Porzio – A Roman army supporting Pope Alexander III is defeated by Christian of Buch and Rainald of Dassel.
 
 ---
 
