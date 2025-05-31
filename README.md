@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 30th is the day in 1854 that the Kansas-Nebraska Act becomes law establishing the US territories of Nebraska and Kansas.
+**<b>📌 Daily Fact:</b>** May 31st is the day in 1911 that President of Mexico Porfirio Díaz flees the country during the Mexican Revolution.
 
 ---
 
