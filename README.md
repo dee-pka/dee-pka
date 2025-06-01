@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** May 31st is the day in 1911 that President of Mexico Porfirio Díaz flees the country during the Mexican Revolution.
+**<b>📌 Daily Fact:</b>** June 1st is the day in 1963 that Kenya gains internal self-rule (Madaraka Day).
 
 ---
 
