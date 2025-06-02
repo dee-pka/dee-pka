@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 1st is the day in 1963 that Kenya gains internal self-rule (Madaraka Day).
+**<b>📌 Daily Fact:</b>** June 2nd is the day in 1876 that Hristo Botev, a national revolutionary of Bulgaria, is killed in Stara Planina.
 
 ---
 
