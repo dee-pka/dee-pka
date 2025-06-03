@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 2nd is the day in 1876 that Hristo Botev, a national revolutionary of Bulgaria, is killed in Stara Planina.
+**<b>📌 Daily Fact:</b>** June 3rd is the day in 1916 that the National Defense Act is signed into law, increasing the size of the United States National Guard by 450,000 men.
 
 ---
 
