@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 3rd is the day in 1916 that the National Defense Act is signed into law, increasing the size of the United States National Guard by 450,000 men.
+**<b>📌 Daily Fact:</b>** June 4th is the day in 1970 that Tonga gains independence from the United Kingdom.
 
 ---
 
