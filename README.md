@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 4th is the day in 1970 that Tonga gains independence from the United Kingdom.
+**<b>📌 Daily Fact:</b>** June 5th is the day in 1837 that Houston, Texas is incorporated by the Republic of Texas.
 
 ---
 
