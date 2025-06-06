@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 5th is the day in 1837 that Houston, Texas is incorporated by the Republic of Texas.
+**<b>📌 Daily Fact:</b>** June 6th is the day in 1809 that Sweden promulgates a new Constitution, which restores political power to the Riksdag of the Estates after 20 years of Enlightened absolutism.
 
 ---
 
