@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 6th is the day in 1809 that Sweden promulgates a new Constitution, which restores political power to the Riksdag of the Estates after 20 years of Enlightened absolutism.
+**<b>📌 Daily Fact:</b>** June 7th is the day in 1995 that the long range Boeing 777 enters service with United Airlines.
 
 ---
 
