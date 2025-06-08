@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 7th is the day in 1995 that the long range Boeing 777 enters service with United Airlines.
+**<b>📌 Daily Fact:</b>** June 8th is the day in 1783 that the volcano Laki, in Iceland, begins an eight-month eruption which kills over 9,000 people and starts a seven-year famine.
 
 ---
 
