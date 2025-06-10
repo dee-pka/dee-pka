@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 9th is the day in 1885 that a peace treaty is signed to end the Sino-French War, with China eventually giving up Tonkin and Annam - most of present-day Vietnam - to France.
+**<b>📌 Daily Fact:</b>** June 10th is the day in 1991 that the kidnapping of Jaycee Lee Dugard.
 
 ---
 
