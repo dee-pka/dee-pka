@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 10th is the day in 1991 that the kidnapping of Jaycee Lee Dugard.
+**<b>📌 Daily Fact:</b>** June 11th is the day in 2001 that Timothy McVeigh is executed for his role in the Oklahoma City bombing.
 
 ---
 
