@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 11th is the day in 2001 that Timothy McVeigh is executed for his role in the Oklahoma City bombing.
+**<b>📌 Daily Fact:</b>** June 12th is the day in 1978 that David Berkowitz, the "Son of Sam" killer in New York City, is sentenced to 365 years in prison for six killings.
 
 ---
 
