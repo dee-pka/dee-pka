@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 12th is the day in 1978 that David Berkowitz, the "Son of Sam" killer in New York City, is sentenced to 365 years in prison for six killings.
+**<b>📌 Daily Fact:</b>** June 13th is the day in 2002 that the United States withdraws from the Anti-Ballistic Missile Treaty.
 
 ---
 
