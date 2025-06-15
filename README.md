@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 14th is the day in 1954 that U.S. President Dwight D. Eisenhower signs a bill into law that places the words "under God" into the U.S.
+**<b>📌 Daily Fact:</b>** June 15th is the day in 1804 that New Hampshire approves the Twelfth Amendment to the United States Constitution, ratifying the document.
 
 ---
 
