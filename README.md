@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 15th is the day in 1804 that New Hampshire approves the Twelfth Amendment to the United States Constitution, ratifying the document.
+**<b>📌 Daily Fact:</b>** June 16th is the day in 1972 that the largest single-site hydro-electric power project in Canada is inaugurated at Churchill Falls, Labrador.
 
 ---
 
