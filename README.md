@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 16th is the day in 1972 that the largest single-site hydro-electric power project in Canada is inaugurated at Churchill Falls, Labrador.
+**<b>📌 Daily Fact:</b>** June 17th is the day in 1565 that Matsunaga Hisahide assassinates the 13th Ashikaga shogun, Ashikaga Yoshiteru.
 
 ---
 
