@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 17th is the day in 1565 that Matsunaga Hisahide assassinates the 13th Ashikaga shogun, Ashikaga Yoshiteru.
+**<b>📌 Daily Fact:</b>** June 18th is the day in 1264 that the Parliament of Ireland meets at Castledermot in County Kildare, the first definitively known meeting of this Irish legislature.
 
 ---
 
