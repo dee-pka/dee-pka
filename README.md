@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 18th is the day in 1264 that the Parliament of Ireland meets at Castledermot in County Kildare, the first definitively known meeting of this Irish legislature.
+**<b>📌 Daily Fact:</b>** June 19th is the day in 1306 that the Earl of Pembroke's army defeats Bruce's Scottish army at the Battle of Methven.
 
 ---
 
