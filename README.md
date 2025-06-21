@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 20th is the day in 1756 that a British garrison is imprisoned in the Black Hole of Calcutta.
+**<b>📌 Daily Fact:</b>** June 21st is the day in 1948 that Columbia Records introduces the long-playing record album in a public demonstration at the Waldorf-Astoria Hotel in New York, New York.
 
 ---
 
