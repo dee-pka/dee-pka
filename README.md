@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 22nd is the day in 1978 that Charon, a satellite of the dwarf planet Pluto, is discovered by American astronomer James W. Christy.
+**<b>📌 Daily Fact:</b>** June 23rd is the day in 1931 that Wiley Post and Harold Gatty take off from Roosevelt Field, Long Island in an attempt to circumnavigate the world in a single-engine plane.
 
 ---
 
