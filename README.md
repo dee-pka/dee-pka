@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 23rd is the day in 1931 that Wiley Post and Harold Gatty take off from Roosevelt Field, Long Island in an attempt to circumnavigate the world in a single-engine plane.
+**<b>📌 Daily Fact:</b>** June 24th is the day in 2010 that John Isner of the United States defeats Nicolas Mahut of France at Wimbledon, in the longest match in professional tennis history.
 
 ---
 
