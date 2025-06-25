@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 24th is the day in 2010 that John Isner of the United States defeats Nicolas Mahut of France at Wimbledon, in the longest match in professional tennis history.
+**<b>📌 Daily Fact:</b>** June 25th is the day in 1786 that Gavriil Pribylov discovers St. George Island of the Pribilof Islands in the Bering Sea.
 
 ---
 
