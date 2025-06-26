@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 25th is the day in 1786 that Gavriil Pribylov discovers St. George Island of the Pribilof Islands in the Bering Sea.
+**<b>📌 Daily Fact:</b>** June 26th is the day in 1934 that President Franklin D. Roosevelt signs the Federal Credit Union Act, which establishes credit unions.
 
 ---
 
