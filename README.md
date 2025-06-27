@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 26th is the day in 1934 that President Franklin D. Roosevelt signs the Federal Credit Union Act, which establishes credit unions.
+**<b>📌 Daily Fact:</b>** June 27th is the day in 1358 that Republic of Dubrovnik is founded.
 
 ---
 
