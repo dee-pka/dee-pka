@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 27th is the day in 1358 that Republic of Dubrovnik is founded.
+**<b>📌 Daily Fact:</b>** June 28th is the day in 1992 that the Constitution of Estonia is signed into law.
 
 ---
 
