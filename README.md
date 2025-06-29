@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 28th is the day in 1992 that the Constitution of Estonia is signed into law.
+**<b>📌 Daily Fact:</b>** June 29th is the day in 1786 that Alexander Macdonell and over five hundred Roman Catholic highlanders leave Scotland to settle in Glengarry County, Ontario.
 
 ---
 
