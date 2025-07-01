@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** June 30th is the day in 2009 that Yemenia Flight 626 crashes into the Indian Ocean, near Comoros, killing all but one of the 153 passengers and crew on board.
+**<b>📌 Daily Fact:</b>** July 1st is the day in 1997 that China resumes sovereignty over the city-state of Hong Kong, ending 156 years of British colonial rule.
 
 ---
 
