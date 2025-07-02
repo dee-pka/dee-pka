@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 1st is the day in 1997 that China resumes sovereignty over the city-state of Hong Kong, ending 156 years of British colonial rule.
+**<b>📌 Daily Fact:</b>** July 2nd is the day in 437 that Emperor Valentinian III, begins his reign over the Western Roman Empire.
 
 ---
 
