@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 2nd is the day in 437 that Emperor Valentinian III, begins his reign over the Western Roman Empire.
+**<b>📌 Daily Fact:</b>** July 3rd is the day in 1952 that the Constitution of Puerto Rico is approved by the Congress of the United States.
 
 ---
 
