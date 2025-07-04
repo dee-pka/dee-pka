@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 3rd is the day in 1952 that the Constitution of Puerto Rico is approved by the Congress of the United States.
+**<b>📌 Daily Fact:</b>** July 4th is the day in 1636 that City of Providence, Rhode Island forms.
 
 ---
 
