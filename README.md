@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 4th is the day in 1636 that City of Providence, Rhode Island forms.
+**<b>📌 Daily Fact:</b>** July 5th is the day in 1803 that the Convention of Artlenburg leads to the French occupation of Hanover (which had been ruled by the British king).
 
 ---
 
