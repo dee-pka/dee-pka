@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 5th is the day in 1803 that the Convention of Artlenburg leads to the French occupation of Hanover (which had been ruled by the British king).
+**<b>📌 Daily Fact:</b>** July 6th is the day in 1044 that the Battle of Ménfő between troops led by Emperor Henry III and Magyar forces led by King Samuel takes place.
 
 ---
 
