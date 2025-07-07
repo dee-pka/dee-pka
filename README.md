@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 6th is the day in 1044 that the Battle of Ménfő between troops led by Emperor Henry III and Magyar forces led by King Samuel takes place.
+**<b>📌 Daily Fact:</b>** July 7th is the day in 1946 that Howard Hughes nearly dies when his XF-11 spy plane prototype crashes in a Beverly Hills neighborhood.
 
 ---
 
