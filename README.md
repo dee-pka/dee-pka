@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 7th is the day in 1946 that Howard Hughes nearly dies when his XF-11 spy plane prototype crashes in a Beverly Hills neighborhood.
+**<b>📌 Daily Fact:</b>** July 8th is the day in 1822 that Chippewas turn over a huge tract of land in Ontario to the United Kingdom.
 
 ---
 
