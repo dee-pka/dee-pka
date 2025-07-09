@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 8th is the day in 1822 that Chippewas turn over a huge tract of land in Ontario to the United Kingdom.
+**<b>📌 Daily Fact:</b>** July 9th is the day in 1793 that the Act Against Slavery is passed in Upper Canada and the importation of slaves into Lower Canada is prohibited.
 
 ---
 
