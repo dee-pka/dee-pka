@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 9th is the day in 1793 that the Act Against Slavery is passed in Upper Canada and the importation of slaves into Lower Canada is prohibited.
+**<b>📌 Daily Fact:</b>** July 10th is the day in 1821 that the United States takes possession of its newly bought territory of Florida from Spain.
 
 ---
 
