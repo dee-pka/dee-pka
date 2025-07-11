@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 10th is the day in 1821 that the United States takes possession of its newly bought territory of Florida from Spain.
+**<b>📌 Daily Fact:</b>** July 11th is the day in 1962 that First transatlantic satellite television transmission.
 
 ---
 
