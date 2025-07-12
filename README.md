@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 11th is the day in 1962 that First transatlantic satellite television transmission.
+**<b>📌 Daily Fact:</b>** July 12th is the day in 1975 that São Tomé and Príncipe declare independence from Portugal.
 
 ---
 
