@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 12th is the day in 1975 that São Tomé and Príncipe declare independence from Portugal.
+**<b>📌 Daily Fact:</b>** July 13th is the day in 1985 that the Live Aid benefit concert takes place in London and Philadelphia, as well as other venues such as Sydney and Moscow.
 
 ---
 
