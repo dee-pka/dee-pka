@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 13th is the day in 1985 that the Live Aid benefit concert takes place in London and Philadelphia, as well as other venues such as Sydney and Moscow.
+**<b>📌 Daily Fact:</b>** July 14th is the day in 1965 that the Mariner 4 flyby of Mars takes the first close-up photos of another planet.
 
 ---
 
