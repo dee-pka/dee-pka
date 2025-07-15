@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 14th is the day in 1965 that the Mariner 4 flyby of Mars takes the first close-up photos of another planet.
+**<b>📌 Daily Fact:</b>** July 15th is the day in 1996 that a Belgian Air Force C-130 Hercules carrying the Royal Netherlands Army marching band crashes on landing at Eindhoven Airport.
 
 ---
 
