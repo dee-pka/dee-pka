@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 15th is the day in 1996 that a Belgian Air Force C-130 Hercules carrying the Royal Netherlands Army marching band crashes on landing at Eindhoven Airport.
+**<b>📌 Daily Fact:</b>** July 16th is the day in 1990 that the Luzon Earthquake strikes in Benguet, Pangasinan, Nueva Ecija, La Union, Aurora, Bataan, Zambales and Tarlac, Philippines, with an intensity of 7.7.
 
 ---
 
