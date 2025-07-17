@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 16th is the day in 1990 that the Luzon Earthquake strikes in Benguet, Pangasinan, Nueva Ecija, La Union, Aurora, Bataan, Zambales and Tarlac, Philippines, with an intensity of 7.7.
+**<b>📌 Daily Fact:</b>** July 17th is the day in 1867 that Harvard School of Dental Medicine was established in Boston.
 
 ---
 
