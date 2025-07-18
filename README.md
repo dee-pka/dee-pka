@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 17th is the day in 1867 that Harvard School of Dental Medicine was established in Boston.
+**<b>📌 Daily Fact:</b>** July 18th is the day in 1925 that Adolf Hitler publishes his personal manifesto Mein Kampf.
 
 ---
 
