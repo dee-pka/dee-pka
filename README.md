@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 18th is the day in 1925 that Adolf Hitler publishes his personal manifesto Mein Kampf.
+**<b>📌 Daily Fact:</b>** July 19th is the day in 1985 that the Val di Stava dam collapses killing 268 people in Val di Stava, Italy.
 
 ---
 
