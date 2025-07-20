@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 19th is the day in 1985 that the Val di Stava dam collapses killing 268 people in Val di Stava, Italy.
+**<b>📌 Daily Fact:</b>** July 20th is the day in 1980 that the United Nations Security Council votes 14-0 that member states should not recognize Jerusalem as the capital of Israel.
 
 ---
 
