@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 20th is the day in 1980 that the United Nations Security Council votes 14-0 that member states should not recognize Jerusalem as the capital of Israel.
+**<b>📌 Daily Fact:</b>** July 21st is the day in 1977 that the start of the four day long Libyan-Egyptian War.
 
 ---
 
