@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 21st is the day in 1977 that the start of the four day long Libyan-Egyptian War.
+**<b>📌 Daily Fact:</b>** July 22nd is the day in 1793 that Alexander Mackenzie reaches the Pacific Ocean becoming the first Euro-American to complete a transcontinental crossing of Canada.
 
 ---
 
