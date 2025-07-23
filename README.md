@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 22nd is the day in 1793 that Alexander Mackenzie reaches the Pacific Ocean becoming the first Euro-American to complete a transcontinental crossing of Canada.
+**<b>📌 Daily Fact:</b>** July 23rd is the day in 1903 that the Ford Motor Company sells its first car.
 
 ---
 
