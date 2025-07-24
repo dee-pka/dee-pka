@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 23rd is the day in 1903 that the Ford Motor Company sells its first car.
+**<b>📌 Daily Fact:</b>** July 24th is the day in 2001 that Bandaranaike Airport attack is carried out by 14 Tamil Tiger commandos, all died in this attack.
 
 ---
 
