@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 24th is the day in 2001 that Bandaranaike Airport attack is carried out by 14 Tamil Tiger commandos, all died in this attack.
+**<b>📌 Daily Fact:</b>** July 25th is the day in 1994 that Israel and Jordan sign the Washington Declaration, which formally ends the state of war that had existed between the nations since 1948.
 
 ---
 
