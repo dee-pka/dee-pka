@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 25th is the day in 1994 that Israel and Jordan sign the Washington Declaration, which formally ends the state of war that had existed between the nations since 1948.
+**<b>📌 Daily Fact:</b>** July 26th is the day in 1974 that Greek Prime Minister Constantinos Karamanlis forms the country's first civil government after seven years of military rule.
 
 ---
 
