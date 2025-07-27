@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 26th is the day in 1974 that Greek Prime Minister Constantinos Karamanlis forms the country's first civil government after seven years of military rule.
+**<b>📌 Daily Fact:</b>** July 27th is the day in 1917 that the Allies reach the Yser Canal at the Battle of Passchendaele.
 
 ---
 
