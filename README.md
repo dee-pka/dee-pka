@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 27th is the day in 1917 that the Allies reach the Yser Canal at the Battle of Passchendaele.
+**<b>📌 Daily Fact:</b>** July 28th is the day in 2008 that the historic Grand Pier in Weston-super-Mare burns down for the second time in 80 years.
 
 ---
 
