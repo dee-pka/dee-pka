@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 28th is the day in 2008 that the historic Grand Pier in Weston-super-Mare burns down for the second time in 80 years.
+**<b>📌 Daily Fact:</b>** July 29th is the day in 615 that Pakal ascends the throne of Palenque at age 12.
 
 ---
 
