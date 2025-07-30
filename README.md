@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 29th is the day in 615 that Pakal ascends the throne of Palenque at age 12.
+**<b>📌 Daily Fact:</b>** July 30th is the day in 1629 that an earthquake in Naples, Italy, kills about 10,000 people.
 
 ---
 
