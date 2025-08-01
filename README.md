@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** July 31st is the day in 2006 that Fidel Castro hands over power temporarily to brother Raúl Castro.
+**<b>📌 Daily Fact:</b>** August 1st is the day in 1960 that Dahomey (later renamed Benin) declares independence from France.
 
 ---
 
