@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 1st is the day in 1960 that Dahomey (later renamed Benin) declares independence from France.
+**<b>📌 Daily Fact:</b>** August 2nd is the day in 1968 that an earthquake hits Casiguran, Aurora, Philippines killing more than 270 people and wounding 261.
 
 ---
 
