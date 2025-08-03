@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 2nd is the day in 1968 that an earthquake hits Casiguran, Aurora, Philippines killing more than 270 people and wounding 261.
+**<b>📌 Daily Fact:</b>** August 3rd is the day in 2004 that the pedestal of the Statue of Liberty reopens after being closed since the September 11 attacks.
 
 ---
 
