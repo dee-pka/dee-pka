@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 3rd is the day in 2004 that the pedestal of the Statue of Liberty reopens after being closed since the September 11 attacks.
+**<b>📌 Daily Fact:</b>** August 4th is the day in 1821 that Atkinson & Alexander publish the Saturday Evening Post for the first time as a weekly newspaper.
 
 ---
 
