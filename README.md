@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 4th is the day in 1821 that Atkinson & Alexander publish the Saturday Evening Post for the first time as a weekly newspaper.
+**<b>📌 Daily Fact:</b>** August 5th is the day in 1925 that Plaid Cymru is formed with the aim of disseminating knowledge of the Welsh language that is at the time in danger of dying out.
 
 ---
 
