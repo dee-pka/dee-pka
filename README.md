@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 5th is the day in 1925 that Plaid Cymru is formed with the aim of disseminating knowledge of the Welsh language that is at the time in danger of dying out.
+**<b>📌 Daily Fact:</b>** August 6th is the day in 1991 that Doi Takako, chair of the Social Democratic Party, becomes Japan's first female speaker of the House of Representatives.
 
 ---
 
