@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 6th is the day in 1991 that Doi Takako, chair of the Social Democratic Party, becomes Japan's first female speaker of the House of Representatives.
+**<b>📌 Daily Fact:</b>** August 7th is the day in 1791 that United States troops destroy the Miami town of Kenapacomaqua near the site of present-day Logansport, Indiana in the Northwest Indian War.
 
 ---
 
