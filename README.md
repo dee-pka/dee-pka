@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 8th is the day in 1220 that Sweden is defeated by Estonian tribes in the Battle of Lihula.
+**<b>📌 Daily Fact:</b>** August 9th is the day in 1810 that Napoleon annexes Westphalia as part of the First French Empire.
 
 ---
 
