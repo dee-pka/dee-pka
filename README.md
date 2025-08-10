@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 9th is the day in 1810 that Napoleon annexes Westphalia as part of the First French Empire.
+**<b>📌 Daily Fact:</b>** August 10th is the day in 1680 that the Pueblo Revolt begins in New Mexico.
 
 ---
 
