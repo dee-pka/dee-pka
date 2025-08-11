@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 10th is the day in 1680 that the Pueblo Revolt begins in New Mexico.
+**<b>📌 Daily Fact:</b>** August 11th is the day in 1982 that a bomb explodes on Pan Am Flight 830, en route from Tokyo to Honolulu, killing one teenager and injuring 15 passengers.
 
 ---
 
