@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 11th is the day in 1982 that a bomb explodes on Pan Am Flight 830, en route from Tokyo to Honolulu, killing one teenager and injuring 15 passengers.
+**<b>📌 Daily Fact:</b>** August 12th is the day in 1793 that the Rhône and Loire (Lêre) départments are created when the former département of Rhône-et-Loire is split into two.
 
 ---
 
