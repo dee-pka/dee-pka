@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 12th is the day in 1793 that the Rhône and Loire (Lêre) départments are created when the former département of Rhône-et-Loire is split into two.
+**<b>📌 Daily Fact:</b>** August 13th is the day in 1954 that Radio Pakistan broadcasts the "Qaumī Tarāna", the national anthem of Pakistan for the first time.
 
 ---
 
