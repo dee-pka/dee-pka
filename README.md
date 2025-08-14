@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 13th is the day in 1954 that Radio Pakistan broadcasts the "Qaumī Tarāna", the national anthem of Pakistan for the first time.
+**<b>📌 Daily Fact:</b>** August 14th is the day in 1816 that the United Kingdom formally annexed the Tristan da Cunha archipelago, ruling them from the Cape Colony in South Africa.
 
 ---
 
