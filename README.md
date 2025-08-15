@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 14th is the day in 1816 that the United Kingdom formally annexed the Tristan da Cunha archipelago, ruling them from the Cape Colony in South Africa.
+**<b>📌 Daily Fact:</b>** August 15th is the day in 1914 that the First Russian Army, led by Pavel Rennenkampf, enters Eastern Prussia.
 
 ---
 
