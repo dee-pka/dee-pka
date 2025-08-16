@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 15th is the day in 1914 that the First Russian Army, led by Pavel Rennenkampf, enters Eastern Prussia.
+**<b>📌 Daily Fact:</b>** August 16th is the day in 1960 that Cyprus gains its independence from the United Kingdom.
 
 ---
 
