@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 17th is the day in 1907 that Pike Place Market, a popular tourist destination and registered historic district in Seattle, opened.
+**<b>📌 Daily Fact:</b>** August 18th is the day in 2008 that President of Pakistan Pervez Musharaf resigns due to the threat of impeachment.
 
 ---
 
