@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 19th is the day in 2003 that a car-bomb attack on United Nations headquarters in Iraq kills the agency's top envoy Sergio Vieira de Mello and 21 other employees.
+**<b>📌 Daily Fact:</b>** August 20th is the day in 1775 that the Spanish establish the Presidio San Augustin del Tucson in the town that became Tucson, Arizona.
 
 ---
 
