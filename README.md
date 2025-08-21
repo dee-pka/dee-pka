@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 20th is the day in 1775 that the Spanish establish the Presidio San Augustin del Tucson in the town that became Tucson, Arizona.
+**<b>📌 Daily Fact:</b>** August 21st is the day in 1821 that Jarvis Island is discovered by the crew of the ship, Eliza Frances.
 
 ---
 
