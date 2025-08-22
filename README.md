@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 21st is the day in 1821 that Jarvis Island is discovered by the crew of the ship, Eliza Frances.
+**<b>📌 Daily Fact:</b>** August 22nd is the day in 1996 that Bill Clinton signs welfare reform into law, representing major shift in US welfare policy.
 
 ---
 
