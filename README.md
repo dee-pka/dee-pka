@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 22nd is the day in 1996 that Bill Clinton signs welfare reform into law, representing major shift in US welfare policy.
+**<b>📌 Daily Fact:</b>** August 23rd is the day in 2007 that the skeletal remains of Alexei Nikolaevich, Tsarevich of Russia, and his sister Anastasia are found near Yekaterinburg, Russia.
 
 ---
 
