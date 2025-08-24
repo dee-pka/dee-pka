@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 23rd is the day in 2007 that the skeletal remains of Alexei Nikolaevich, Tsarevich of Russia, and his sister Anastasia are found near Yekaterinburg, Russia.
+**<b>📌 Daily Fact:</b>** August 24th is the day in 1608 that the first official English representative to India lands in Surat.
 
 ---
 
