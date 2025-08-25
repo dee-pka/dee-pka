@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 24th is the day in 1608 that the first official English representative to India lands in Surat.
+**<b>📌 Daily Fact:</b>** August 25th is the day in 1609 that Galileo Galilei demonstrates his first telescope to Venetian lawmakers.
 
 ---
 
