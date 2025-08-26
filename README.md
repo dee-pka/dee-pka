@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 25th is the day in 1609 that Galileo Galilei demonstrates his first telescope to Venetian lawmakers.
+**<b>📌 Daily Fact:</b>** August 26th is the day in 1791 that John Fitch is granted a United States patent for the steamboat.
 
 ---
 
