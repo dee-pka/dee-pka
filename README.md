@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 26th is the day in 1791 that John Fitch is granted a United States patent for the steamboat.
+**<b>📌 Daily Fact:</b>** August 27th is the day in 1593 that Pierre Barrière fails in his attempt to assassinate King Henry IV of France.
 
 ---
 
