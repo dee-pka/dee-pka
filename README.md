@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 27th is the day in 1593 that Pierre Barrière fails in his attempt to assassinate King Henry IV of France.
+**<b>📌 Daily Fact:</b>** August 28th is the day in 1901 that Silliman University is founded in the Philippines.
 
 ---
 
