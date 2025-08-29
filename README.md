@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 28th is the day in 1901 that Silliman University is founded in the Philippines.
+**<b>📌 Daily Fact:</b>** August 29th is the day in 1991 that Libero Grassi, an Italian businessman from Palermo is killed by the Mafia after taking a solitary stand against their extortion demands.
 
 ---
 
