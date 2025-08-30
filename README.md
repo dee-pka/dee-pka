@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 29th is the day in 1991 that Libero Grassi, an Italian businessman from Palermo is killed by the Mafia after taking a solitary stand against their extortion demands.
+**<b>📌 Daily Fact:</b>** August 30th is the day in 1897 that the town of Ambiky is captured by France from Menabe in Madagascar.
 
 ---
 
