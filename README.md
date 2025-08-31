@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 30th is the day in 1897 that the town of Ambiky is captured by France from Menabe in Madagascar.
+**<b>📌 Daily Fact:</b>** August 31st is the day in 1949 that the retreat of the Democratic Army of Greece in Albania after its defeat on Gramos mountain marks the end of the Greek Civil War.
 
 ---
 
