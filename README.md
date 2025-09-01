@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** August 31st is the day in 1949 that the retreat of the Democratic Army of Greece in Albania after its defeat on Gramos mountain marks the end of the Greek Civil War.
+**<b>📌 Daily Fact:</b>** September 1st is the day in 2004 that Beslan school hostage crisis commences when armed terrorists take children and adults hostage in Beslan in North Ossetia, Russia.
 
 ---
 
