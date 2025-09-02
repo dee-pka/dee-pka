@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 1st is the day in 2004 that Beslan school hostage crisis commences when armed terrorists take children and adults hostage in Beslan in North Ossetia, Russia.
+**<b>📌 Daily Fact:</b>** September 2nd is the day in 1811 that the University of Oslo is founded as The Royal Fredericks University, after Frederick VI of Denmark and Norway.
 
 ---
 
