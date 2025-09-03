@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 2nd is the day in 1811 that the University of Oslo is founded as The Royal Fredericks University, after Frederick VI of Denmark and Norway.
+**<b>📌 Daily Fact:</b>** September 3rd is the day in 1954 that the People's Liberation Army begins shelling the Republic of China-controlled islands of Quemoy, starting the First Taiwan Strait Crisis.
 
 ---
 
