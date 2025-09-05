@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 4th is the day in 1919 that Mustafa Kemal Atatürk, who founded the Republic of Turkey, gathers a congress in Sivas to make decisions as to the future of Anatolia and Thrace.
+**<b>📌 Daily Fact:</b>** September 5th is the day in 1941 that Whole territory of Estonia is occupied by Nazi Germany.
 
 ---
 
