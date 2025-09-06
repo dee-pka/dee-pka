@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 5th is the day in 1941 that Whole territory of Estonia is occupied by Nazi Germany.
+**<b>📌 Daily Fact:</b>** September 6th is the day in 2009 that the ro-ro ferry SuperFerry 9 sinks off the Zamboanga Peninsula in the Philippines with 971 persons aboard; all but ten are rescued.
 
 ---
 
