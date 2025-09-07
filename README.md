@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 6th is the day in 2009 that the ro-ro ferry SuperFerry 9 sinks off the Zamboanga Peninsula in the Philippines with 971 persons aboard; all but ten are rescued.
+**<b>📌 Daily Fact:</b>** September 7th is the day in 2004 that Hurricane Ivan, a Category 5 hurricane hits Grenada, killing 39 and damaging 90% of its buildings.
 
 ---
 
