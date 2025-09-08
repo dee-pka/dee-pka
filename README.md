@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 7th is the day in 2004 that Hurricane Ivan, a Category 5 hurricane hits Grenada, killing 39 and damaging 90% of its buildings.
+**<b>📌 Daily Fact:</b>** September 8th is the day in 1514 that Battle of Orsha – in one of the biggest battles of the century, Lithuanians and Poles defeat the Russian army.
 
 ---
 
