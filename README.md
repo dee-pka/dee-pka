@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 8th is the day in 1514 that Battle of Orsha – in one of the biggest battles of the century, Lithuanians and Poles defeat the Russian army.
+**<b>📌 Daily Fact:</b>** September 9th is the day in 1922 that the Greco-Turkish War of 1919-1922 effectively ends with Turkish victory over the Greeks in Smyrna.
 
 ---
 
