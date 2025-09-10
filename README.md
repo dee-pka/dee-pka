@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 9th is the day in 1922 that the Greco-Turkish War of 1919-1922 effectively ends with Turkish victory over the Greeks in Smyrna.
+**<b>📌 Daily Fact:</b>** September 10th is the day in 2008 that the Large Hadron Collider at CERN, described as the biggest scientific experiment in history is powered up in Geneva, Switzerland.
 
 ---
 
