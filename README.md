@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 10th is the day in 2008 that the Large Hadron Collider at CERN, described as the biggest scientific experiment in history is powered up in Geneva, Switzerland.
+**<b>📌 Daily Fact:</b>** September 11th is the day in 1919 that U.S. Marines invade Honduras.
 
 ---
 
