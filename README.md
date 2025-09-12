@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 11th is the day in 1919 that U.S. Marines invade Honduras.
+**<b>📌 Daily Fact:</b>** September 12th is the day in 1952 that Strange occurrences, including a monster sighting, take place in Flatwoods, West Virginia.
 
 ---
 
