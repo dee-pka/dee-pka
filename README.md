@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 12th is the day in 1952 that Strange occurrences, including a monster sighting, take place in Flatwoods, West Virginia.
+**<b>📌 Daily Fact:</b>** September 13th is the day in 1609 that Henry Hudson reaches the river that would later be named after him – the Hudson River.
 
 ---
 
