@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 13th is the day in 1609 that Henry Hudson reaches the river that would later be named after him – the Hudson River.
+**<b>📌 Daily Fact:</b>** September 14th is the day in 1959 that the Soviet probe Luna 2 crashes onto the Moon, becoming the first man-made object to reach it.
 
 ---
 
