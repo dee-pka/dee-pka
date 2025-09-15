@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 14th is the day in 1959 that the Soviet probe Luna 2 crashes onto the Moon, becoming the first man-made object to reach it.
+**<b>📌 Daily Fact:</b>** September 15th is the day in 1935 that Nazi Germany adopts a new national flag with the swastika.
 
 ---
 
