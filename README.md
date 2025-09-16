@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 15th is the day in 1935 that Nazi Germany adopts a new national flag with the swastika.
+**<b>📌 Daily Fact:</b>** September 16th is the day in 1991 that the trial of the deposed Panamanian dictator Manuel Noriega begins in the United States.
 
 ---
 
