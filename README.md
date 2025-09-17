@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 16th is the day in 1991 that the trial of the deposed Panamanian dictator Manuel Noriega begins in the United States.
+**<b>📌 Daily Fact:</b>** September 17th is the day in 1894 that the Battle of Yalu River, the largest naval engagement of the First Sino-Japanese War.
 
 ---
 
