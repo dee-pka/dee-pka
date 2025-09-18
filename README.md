@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 17th is the day in 1894 that the Battle of Yalu River, the largest naval engagement of the First Sino-Japanese War.
+**<b>📌 Daily Fact:</b>** September 18th is the day in 1975 that Patty Hearst is arrested after a year on the FBI Most Wanted List.
 
 ---
 
