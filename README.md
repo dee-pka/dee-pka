@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 18th is the day in 1975 that Patty Hearst is arrested after a year on the FBI Most Wanted List.
+**<b>📌 Daily Fact:</b>** September 19th is the day in 1972 that a parcel bomb sent to Israeli Embassy in London kills one diplomat.
 
 ---
 
