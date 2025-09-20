@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 19th is the day in 1972 that a parcel bomb sent to Israeli Embassy in London kills one diplomat.
+**<b>📌 Daily Fact:</b>** September 20th is the day in 1378 that Cardinal Robert of Geneva, called by some the Butcher of Cesena, is elected as Avignon Pope Clement VII, beginning the Papal schism.
 
 ---
 
