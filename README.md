@@ -8,7 +8,7 @@
 - 📫 How to reach me **deepkanair8@gmail.com**
 ---
 
-**<b>📌 Daily Fact:</b>** September 20th is the day in 1378 that Cardinal Robert of Geneva, called by some the Butcher of Cesena, is elected as Avignon Pope Clement VII, beginning the Papal schism.
+**<b>📌 Daily Fact:</b>** September 21st is the day in 2003 that Galileo mission is terminated by sending the probe into Jupiter's atmosphere, where it is crushed by the pressure at the lower altitudes.
 
 ---
 
